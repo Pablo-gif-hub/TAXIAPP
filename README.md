@@ -8,3 +8,6 @@ Actualizacion de proyecto
 
 
 me gusta viajar en transporte liviano
+
+
+PABLO VARGAS QUISPE, LIMBERT CRUZ, MARCO COPA
